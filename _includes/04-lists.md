@@ -1,0 +1,5 @@
+- Monstera
+- Pilea
+- Peace Lily
+- Tradescantia Nanouk 
+  - how tall ??
