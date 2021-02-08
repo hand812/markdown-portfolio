@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+- Monstera
+- Pilea
+- Peace Lily
+- Tradescantia Nanouk 
+  - how tall ??
